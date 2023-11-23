@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @WarriorYeet12
+- 👀 I love animals, video games, and math
+- 🌱 If you want to play with me on Fortnite, I am WarriorYeet100 or Nether-god12 (Playstation)
+- 💞️ To play with me on Roblox, search up REDWARRIOR9172
+- All I want for people who view what I do, I just want you guys to have fun
